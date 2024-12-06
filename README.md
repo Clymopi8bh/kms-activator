@@ -28,8 +28,5 @@ The **KMS Activator** is the ultimate solution for users looking for a secure an
 3. **Select Your Product**: Choose Windows or Office, and hit the activation button 🖱️.  
 4. **Enjoy Full Features**: Once activated, enjoy unrestricted access to all features of your software 🌟.  
 
-## ⚠️ Important Information:  
-Activating software through third-party tools may not comply with Microsoft’s terms of service. Ensure you understand the implications before use. The **KMS Activator** is provided for **educational purposes only** and should be used responsibly.  
-
   
 Simplify your software activation with the **KMS Activator**. Secure, fast, and efficient—unlock the full potential of Windows and Office today! 🌐🔓  
